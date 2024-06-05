@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nicogato30
+- 👋🏻 Hi, I’m @Nicogato30
 - 👀 I’m interested in entertaiment and fun
 - 🌱 I’m currently learning to use github
 - 💞️ I’m looking to collaborate on me
